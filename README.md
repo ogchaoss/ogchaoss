@@ -6,4 +6,4 @@
 <img width="961" height="674" alt="36" src="https://github.com/user-attachments/assets/fded2be3-579c-4e83-8e91-e57c7cb9b49d" /> 
 <img width="366" height="280" alt="Screenshot 2025-07-14 154045" src="https://github.com/user-attachments/assets/afd38704-fe29-422c-ab7c-6761dba4dced" /> <img width="676" height="663" alt="357" src="https://github.com/user-attachments/assets/7df44928-ffee-4bf8-a7bb-0ce40c8c1168" />
 
-            i liek my friends
+i liek my friends

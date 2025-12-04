@@ -1,4 +1,4 @@
-![229](https://github.com/user-attachments/assets/0d32786b-4196-43d4-b45e-d2126e1b1402)
+![229](https://github.com/user-attachments/assets/89153119-c871-4370-a8b9-874dfacbf93a)
 
    DNI: KPDH fans, Helluva boss/Hazbin hotel fans, 🖌️ Dandy's World [ALPHA] fans <-- friens are oke..
 
